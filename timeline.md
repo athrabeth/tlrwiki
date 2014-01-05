@@ -2,14 +2,18 @@
 
 ## Overview
 
-Origin - Masters Timeline
-Divergence - bathics incur in pre-historic middle east, enslave humans, resistance, the Savior
-Evolution - how the survivors became the himadhaman
-Conflict - how the himadhaman and the bathics, via a proxy war with posthuman movements, accidentally create the Apostate (aka SJ)
-Destruction - The Apostate and the Destruction of the Old World
-Salvation - The Founding of the Redoubts and the Lady's People (aka The Ash Years)
-Reclamation - the Reclamation
-War - The Bathics return from a millennia and a half of exile to attempt to reclaim their former territories 
+**Origin** - Masters Timeline
+**Divergence** - bathics incur in pre-historic middle east, enslave humans, resistance, the Savior
+**Evolution** - how the survivors became the himadhaman
+**Conflict** - how the himadhaman and the bathics, via a proxy war with posthuman movements, accidentally create the Apostate (aka SJ)
+**Destruction** - The Apostate and the Destruction of the Old World
+**Salvation** - (0 FA, start of the “fourth age”) The Founding of the Redoubts and the Lady's People
+**The Ash Years** (0FA - 1360 FA) 
+**Reclamation** - the Reclamation
+**Far Antiquity** - (1425 FA - approx. 2355 FA) The time of the nations of the redoubts that survived the reclamation. generally agreed that this era ends with the fall of Ydris. 
+**Near Antiquity** - (2355 FA - 2765 FA) an age of chaos when all the old empires fell, either to barbarians like the Cisiv or to their own internal conflicts. 
+**Modern Era** - (2765 FA - 3211 FA) begins with the rise of Kurasa and the unification of the Jathayan city-states into the Ithilien League. 
+**Return** - The Bathics return from a millennia and a half of exile to attempt to reclaim their former territories 
 
 ## Timeline: By Era
 
@@ -40,12 +44,45 @@ As he ages, his telepathic abilities grow increasingly potent, but his defenses 
 
 The device, rather than diffusing his abilities, gestalts them into another level. The specific details of how and where his mind goes is never known. 4 days pass, at the end of which the device attached to his neck shatters. The entire world screams as it experiences, with him, the death of the woman again, and then his own. The person he had been dies, consumed like paper in the fire of his new abilities. His already unparalleled telepathy has expanded beyond measure, and his telekinesis, never profound, is now sufficient that he can drag meteors out of the asteroid belt. He rises from his “death” devoid of humanity. All that remains is his wrath. For 3 days he terrorizes the world. He drops a meteor on the middle east after his orders that they stop fighting are not obeyed. For similar reasons he erases every mind in Africa, and then sinks LA by cracking the san andreas fault. Most assume that he is the anti-christ, and that the world is ending. The ever-present howl of rage in every mind that is his presence suddenly vanishes at dawn on the 4th day, and a new voice is heard. his former mate has returned from the dead, apparently. She promises that she will return to him if he stays his hand. He agrees, on the condition that the world obey his orders. His sensitivity has only increased. murder, war, etc all torment him, and he will continue to silence those that disturb him with such acts. The howl of rage recedes, but never totally vanishes. It lurks on the edge of every mind, a reminder of the threat he poses. 
 
-For fifty years  the world lives in cautious peace. the apostate still intends to destroy the world after the Lady dies, but discovers that his abilities have not granted him any form of immortality. He holds on just barely, outliving his wife by 48 hours. As he lays dying, he musters his remaining will and attempts to finish destroying the world he hates. He lashes out and, with his dying thoughts, shatters the moon, dragging its core down onto the north american tectonic plate. The continent is shattered, consumed by tidal waves, earthquakes, and volcanic activity. The rest of the world is similarly effected as the impact ripples through the planet’s fault lines. Only a concerted effort by the Himadhaman hold the planet together. A full third of them die in the attempt. The vast majority of what humanity survives the apocalypse dies in the ensuing ice age. The only place left habitable is antarctica. the impact has altered the earth’s tilt such that the equator now runs across the lands just east of what used to be the transantarctic mountains. Small numbers of humans make landfall on the continent and attempt to survive in ensuing ice age, as it takes nearly a thousand years before the ice fully retreats. 
+For fifty years  the world lives in cautious peace. the apostate still intends to destroy the world after the Lady dies, but discovers that his abilities have not granted him any form of immortality. He holds on just barely, outliving his wife by 48 hours. As he lays dying, he musters his remaining will and attempts to finish destroying the world he hates. He lashes out and, with his dying thoughts, shatters the moon, dragging its core down onto the north american tectonic plate. The continent is shattered, consumed by tidal waves, earthquakes, and volcanic activity. The rest of the world is similarly effected as the impact ripples through the planet’s fault lines. Only a concerted effort by the Himadhaman hold the planet together. A full third of them die in the attempt. The vast majority of what humanity survives the apocalypse dies in the ensuing ice age. The only place left habitable is antarctica. the impact has altered the earth’s tilt such that the equator now runs across the lands just east of what used to be the transantarctic mountains. Small numbers of humans make landfall on the continent and attempt to survive in ensuing ice age, as it takes nearly a thousand years before the ice fully retreats, but after 200,000 years homo sapiens sapiens is functionally extinct. 
 
 ### Salvation Era (aka the Ash Years)
 
-These are not, however, the only survivors. The Apostate’s woman, who is remembered as the Lady Savior Kisava, while lacking the Apostates potency, was a far more subtle mind. She concealed from her husband the fact that she knew his intention to destroy the world after her death, as well as her plans save mankind. She spend the majority of her life after her return organizing said plans. She had a number of “redoubts” constructed, using funds extracted from a wide variety of sources, across the planet, including a few in antarctica. Each redoubt was unique, but all shared two features: each was to be equipped with an enormous tree, and populated by Himadhaman (or Jat) caretakers. The trees were no mere plants, however. They were vast biomechanical systems designed to house, protect, and eventually maturate human clones. The clones that went into each tree were drawn from dozens of racial and ethnic sources, but all had a few subtle modifications made to her specifications. The caretakers were to protect the redoubts and, more specifically, the trees until such time as the tree detected that the environment had recovered sufficiently to host human life again. 
+This is not, however, the end of Mankind. The Apostate’s woman, who is remembered as the Lady Savior Kisava, while lacking the Apostates potency, was a far more subtle mind. She concealed from her husband the fact that she knew his intention to destroy the world after her death, as well as her plans save mankind. She spend the majority of her life after her return organizing said plans. She had a number of “redoubts” constructed, using funds extracted from a wide variety of sources, across the planet, including a few in antarctica. Each redoubt was unique, but all shared two features: each was to be equipped with an enormous tree, and populated by Himadhaman (or Jat) caretakers. The trees were no mere plants, however. They were vast biomechanical systems designed to house, protect, and eventually maturate human clones. The clones that went into each tree were drawn from dozens of racial and ethnic sources, but all had a few subtle modifications made to her specifications.  The modifications were sufficiently complex that the resulting populations, when they emerged, would be a new species: homo sapiens arbolis. The caretakers were to protect the redoubts and, more specifically, the trees until such time as the tree detected that the environment had recovered sufficiently to host human life again. 
+
+The Lady’s plan was not, however, perfect, nor was she flawless. As she had never fully understood the source of her husband’s potency after his death and resurrection (not unlike the way he never understood her own) she did not anticipate the damage he would be able to inflict, and as such did not plan on the extend or duration of the ensuing ice age. Of the dozens of redoubts she planted, only those in antarctica survived, and even then not all of them. The situation was further complicated by the return of the ancient enemy that the Himdhaman had been founded to prevent. They had not known that the Veil was in any way embodied, and as such she in no way anticipated that the shattering of the moon would result in a greatly weakened veil. Of the redoubts that survived the initial destruction, X subsequently fell to bathic incursion. 
+
+<talk about the fell drift>
+<talk about the evolution of the Jat>
+<talk about the Jat’s efforts in the ash before the end of the Ash Years>
 
 ### Reclamation 
 
-### Resurgence Era
+<surviving redoubts>
+<rise of the Black Mansions>
+<establishment of the Jat Missions>
+<the call to war>
+<80 years of war>
+<the destruction of the black mansions>
+
+The Reclamation nearly broke the promise of the Lady’s redoubts. Nations had marched forth from the fortresses she had prepared for them, and scattered tribes returned. Not even the mightiest of the mannish peoples, the descendants of her own sons, returned in anything approaching their original glory. Three entire generations, after unnumbered before them, spent themselves destroying the Black Mansions, and in the process much that had been preserved through the long years of Ash was lost. History, languages, techniques and technologies, unless it served to make their armies stronger or their defenses more robust, no value was assigned to it. 
+
+When the last Mansion was smoking ruin, they trudged back to the homes most had only spent their childhood in, and then set about figuring out how to live in a world that was not in constant war. 
+
+If they expected the Jat, the Others who had called them to the crusade, to help them rebuild they would have been disappointed. They too had suffered grievous losses in the war, though they concealed it better, and when the last Bathic was destroyed, they retreated to their homeland, bequeathing the territory that separated it from the human lands in the north to those Men who had served them in the war. Only their Missions, scattered among the lands of men, remained to give any indication that the strange, pale, inhuman people had ever existed. It would be four generations before all the missions were staffed, and another five before the sight of one of the Jat Vayhar became common enough to no longer provoke fear and superstition. 
+
+#### The Catechisms of the Lady
+
+* This is the Fourth Age of Man. Thou art of the Fourth Age, and thus this is your world and time, but thou art not alone in it. 
+** The Lady has seeded the world with many saplings of the Tree of Man. These are your brethren.
+** There are those of the Ash, who are also of this world, but are not of the Trees. 
+** There are the Others, survivors of the end of the last world. Though they may appear in many ways to be human they are NOT human. Though they share your world, do not ever fall into the folly of assuming that they will share your goals. 
+* From the Deep beyond the world, the eternal Enemies of man await only weakness. They would consume the world. 
+* The Caretakers sacrificed their own lives, and that of any progeny they might have had, that they might teach and protect the children of the Trees. They are to be honored by you and all your descendants. 
+
+
+### Far Antiquity
+
+### Near Antiquity
+
+### Modern Era
