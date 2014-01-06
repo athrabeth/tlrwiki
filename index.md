@@ -6,8 +6,22 @@
 [Game Planning](tlrRPG.md)
 [SJ Novel](surprisingJournalist.md)
 
-## Backstory
+## Encyclopedia Redoubt
 
+### History
+[Timeline](timeline.md)
 [Bathics](bathics.md)
+[The Reclamation](theReclamation.md)
 
-timeline and stuff
+### Politics and Culture
+[Nations](nations.md)
+[Races](races.md)
+[Religions](religions.md)
+[Maps](maps.md)
+
+### Supernatural
+[Supernatural Overview](supernaturals.md)
+[Sorcery Overview](sorcery.md)
+[Bestiary](bestiary.md)
+[The Deep](theDeep.md)
+

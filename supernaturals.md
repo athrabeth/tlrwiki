@@ -1,8 +1,5 @@
 # The Supernatural 
 
-## Sorcery
-
-[Sorcery](sorcery.md) 
-
-## Bathics 
-
+[Sorcery Overview](sorcery.md)
+[Bestiary](bestiary.md)
+[The Deep](theDeep.md)
