@@ -43,3 +43,9 @@ The First sidrigati sorcerer was named XXXX, and made his “debut” during the
 
 ## The Naturals
 * The Ecstatic training focuses on the multithreading necessary to hold the cants of containment in place at all times. Compared to that, the ritual to “ignite” a soul is a peace of cake. If the ritual fails, 9 times out of 10 its not because the soul failed to light up, but that the monk in question failed to contain it. 
+
+## Bathic Sorcery
+
+Its somewhat inaccurate to describe the abilities demonstrated by the bathics as sorcery. While both involve a seeming gap between cause and effect, and both are enabled by the EM, they use fundamentally different philosophies. Human Sorcery injects commands into the EM, which in turn forces the world to produce an effect. Though the specific commands may differ, at the basic level all human sorcery and supernatural abilities rely on this basic system. 
+
+The bathics lack the ability to _command_ the EM in this fashion. They can read it, and their superior processing abilities allow them to make use of those observations much more profoundly than any human. They also possess a superior understanding of the laws of physics. Sort of an Asimovian sorcery, in so much as if you had sufficiently advanced tools, you could track the chain of cause and effect from bathic to the “magic”, whereas with human sorcery there is a gap between the command being issued and the EM making it so. 

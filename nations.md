@@ -16,4 +16,4 @@ There are a number of smaller tribes and societies, mostly branches of these nat
 
 There are two other nations which do not, for various reasons, qualify as “human” nations per se:
 - [Jat Vayhar (Antalla)](JatVayhar.md)
-- [sTladhua](tladhua.md)
+- [Tladhua](tladhua.md)
