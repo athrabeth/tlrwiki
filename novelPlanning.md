@@ -14,7 +14,9 @@ SOMETHING is in the collective unconscious. its no longer just a mechanism. its 
 
 ## Plot
 
-### Characters
+
+
+## Characters
 * the duelist, raised a slave, is somehow catalyzed into throwing off the chains that he’d practically been born in. His will to freedom metastasizes into a full blown fanatic hate when he uncovers that the agents of the Deceiver have returned from over the mountains and once again try to leash his people for its plots. 
 * a sorcerer
 * The Wanderer: the youngest son of the Apostate and the Lady, the only one of their children born with sufficient strangeness to interest his father, and thus taken and hidden among his mother’s people. He lacked their magic, but possessed a biological and spiritual sophistication that was completely unparalleled. He was instrumental in the development of the 3rd Linguistics, but assumption of it transfigured him. It unified his wisdom and his strange physiological abilities, rendering him immortal. Fearing madness, and what could be made of him by the Bathics were he to go mad, he walls off his personality deep inside, and wanders the world. Tales persist to this day of “the ageless, forgetting wanderer”. a man cursed to live life after life, forgetting each in turn. Said to a sign of luck to treat him with kindness. Accorded great respect among the Jat, which is weird in of itself.

@@ -1,11 +1,13 @@
-* The Last Redoubt
+# The Last Redoubt
 
-** Products
+## Products
 
 [TLR Novel Planning](novelPlanning.md)
 [Game Planning](tlrRPG.md)
 [SJ Novel](surprisingJournalist.md)
 
-** Backstory
+## Backstory
+
+[Bathics](bathics.md)
 
 timeline and stuff
