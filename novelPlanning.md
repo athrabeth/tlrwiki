@@ -19,6 +19,10 @@ SOMETHING is in the collective unconscious. its no longer just a mechanism. its 
 * The CU is approaching the informational density threshold after which it will attain true sentience. its effectively an accidentally made AI/God. exactly what its nature will be once it awakens, what that means for the bathics and sorcery, is unknown. 
 * the Jat, via the third linguistics, have some intimation that this is a possibility, if not the timing. as a consequence, for the last hundred years or so, they have begun seeding this prophecy into a few other religions. 
 
+### Threads
+* Sidrigan - indépendance vs tradition, in the form of the returned bathic lord
+* sorcerous exposition
+* Jat and religious exposition
 
 ## Characters
 * the duelist, raised a slave, is somehow catalyzed into throwing off the chains that he’d practically been born in. His will to freedom metastasizes into a full blown fanatic hate when he uncovers that the agents of the Deceiver have returned from over the mountains and once again try to leash his people for its plots. 
