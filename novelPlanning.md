@@ -16,6 +16,12 @@ SOMETHING is in the collective unconscious. its no longer just a mechanism. its 
 
 The Prime Mover of the plot is the apotheosis of the UC. Is this inevitable? does it require something? 
 
+phase 1: learn about sorcery and the Jat. 
+phase 2: return of the bathics
+phase 3: raise the stakes. war. 
+phase 4: change the game. the CU wakes up. 
+phase 5: ???
+
 ### Epic Level
 * the bathics are returning. kadeth has come back over the mountains, and the twins’ tomb has been located. 
 * The CU is approaching the informational density threshold after which it will attain true sentience. its effectively an accidentally made AI/God. exactly what its nature will be once it awakens, what that means for the bathics and sorcery, is unknown. 
